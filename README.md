@@ -1,8 +1,6 @@
 # Portfolio
 
 
-https://www.lingeriemarie.be/nl/home
-
 https://emgenaturals.com/
 
 
